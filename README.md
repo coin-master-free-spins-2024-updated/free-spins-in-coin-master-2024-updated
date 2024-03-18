@@ -2,9 +2,9 @@
 
 44 second - Today Coin Master Free Spins Coins Links March 2024 Tap On The Collect Now Button And Then A Pop Up Menu Will Appear Asking You If You D Like To Open It In Coin Master
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://github.com/lejooam/Coin)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://lejooam.github.io/Coin)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://github.com/lejooam/Coin)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://lejooam.github.io/Coin)
  
 
 In the realm of mobile gaming, Coin Master has emerged as a phenomenon, captivating millions with its addictive gameplay and charming graphics. At the heart of this whirlwind adventure lies a crucial element that fuels players' quests for riches and dominance: free spins. These coveted spins are not just a mere game mechanic but rather a pathway to unlocking treasures, conquering villages, and ascending the ranks of virtual empires.
